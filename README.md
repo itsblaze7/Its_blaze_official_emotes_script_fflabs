@@ -1,0 +1,2 @@
+# Its_blaze_official_emotes_script_fflabs
+Own by Its_blaze
